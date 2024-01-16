@@ -113,3 +113,25 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Peanut Brittle
+
+Ingredients:
+- 2 cups sugar
+- 1 cup light corn syrup
+- 1/2 cup water
+- 2 cups salted roasted peanuts
+- 2 tablespoons butter
+- 1 1/2 teaspoons soda
+- 1 1/2 teaspoons vanilla
+
+Instructions:
+1. Line sheet pan with parchment paper.
+2. Measure out peanuts, butter, baking soda and vanilla.
+3. Add sugar and water to a saucepan and stir in corn syrup occasionally, until it comes to a gentle boil.
+4. Attach your candy thermometer to the edge of the pot, stirring occasionally until temperature reaches 250°F (121°C).
+5. Add the peanuts and stir the mixture constantly until the candy thermometer temperature reaches 300 degrees F.
+6. Remove mixture from heat and immediately stir in butter, baking soda and vanilla. The mixture will foam and change texture.
+7. Carefully pour the hot mixture onto the prepared pan and use a knife or spoon to quickly (and carefully!) spread the mixture into an even layer.
+8. Allow to cool completely (at least 30 minute) before breaking apart and eating.
+9. Store the completely cooled peanut brittle in an airtight container.
