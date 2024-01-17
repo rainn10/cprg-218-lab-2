@@ -53,6 +53,7 @@ Instructions:
 Ingredients:
 - 1 pound spaghetti
 - 1 pound ground beef
+- 1 cup secret sauce
 - 1/2 cup bread crumbs
 - 1/4 cup milk
 - 1/4 cup grated Parmesan cheese
@@ -77,6 +78,7 @@ Ingredients:
 - Salt and pepper to taste
 - 2 tablespoons olive oil
 - 4 slices Swiss cheese
+- 4 slices Cheddar cheese
 - 4 hamburger buns
 - Lettuce
 - Tomato
